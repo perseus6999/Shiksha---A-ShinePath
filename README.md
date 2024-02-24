@@ -18,6 +18,9 @@ At Shiksha - A ShinePath, we believe in nurturing talent and fostering excellenc
 ![Screenshot (5)](https://github.com/perseus6999/Shiksha---A-ShinePath/assets/154442624/93ac509c-63f1-4041-b3fd-400fd4defc88)
 
 
-At Shiksha - A ShinePath, we're just a click away! Connect with us on Instagram, Twitter, and Facebook to stay updated on the latest news, course offerings, and educational resources. Our social media platforms are vibrant communities where you can engage with fellow learners, interact with instructors, and explore additional learning opportunities. Ready to embark on your educational journey? Take the first step towards gaining knowledge by contacting us through our social media channels or directly enrolling in our courses. At Shiksha - A ShinePath, we're here to support you every step of the way on your quest for knowledge and personal growth.
+At Shiksha - A ShinePath, connect with us on Instagram, Twitter, and Facebook for updates. Ready to learn? Enroll now and explore endless possibilities!
+
+![download](https://github.com/perseus6999/Shiksha---A-ShinePath/assets/154442624/369788aa-8c87-415f-8048-ae8ce790dda9)
+
 
 
